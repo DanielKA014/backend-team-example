@@ -1,1 +1,1 @@
-# backend-team-example
+sudah seminggu ku makan telur, telur ceplok dadar dan omelet, pakai sambel dan juga alpukat ADUH ADUH SELALU MAKAn telur telur telur tiap hari selalu makan telur,TELUR telur telur telur tiap hari selallu makan telur 
