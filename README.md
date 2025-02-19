@@ -1,1 +1,1 @@
-# backend-team-example
+Need to stay dry? I have just the thing! This specialty umbrella collects and purifies rain water, turning it into drinking water that is conveniently stored in this compact container — a real must-have for a traveler like yourself! And all that for only 500,000 Mora!
